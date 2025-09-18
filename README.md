@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 You can reach me on my email markovoloshchuk@gmail.com and also on my instagram @76_maka_popka. Currently I use my instagram profile to share my drawings, so if you are interested, you might take a look.
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I do love drawing like for 7 years now and I'm planning to use my skills for game desining in not so far future.
+- ⚡ Fun fact: I do love drawing like for 8 years now and I'm planning to use my skills for game desining in not so far future.
 
 <!---
 VoloshchukMark/VoloshchukMark is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
